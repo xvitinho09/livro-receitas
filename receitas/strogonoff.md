@@ -1,4 +1,4 @@
-# Receita de strognoff
+# Receita de strogonoff
 
 ### Ingredientes
 
